@@ -19,5 +19,4 @@ KidBright Chain Battery นั้นมีความสามารถใน�
 
 ### Other 
 
-Looking for KB Chain 3-AXIS Accelerometer [Shop Now](https://www.kidbright.io/product-page/kb-chain-battery-module)
-
+Looking for KB Chain_Battery [Shop Now](https://www.kidbright.io/product-page/kb-chain-battery-module)
